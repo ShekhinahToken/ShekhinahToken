@@ -4,4 +4,5 @@
 - Discord:   Shekhinah#0596
 - Youtube:   https://www.youtube.com/channel/UC7WQuPWzvUUsVg7namDopDQ
 - Instagram: https://www.instagram.com/shekhinah_token/
-
+- Facebook: https://facebook.com/ShekhinahToken
+- TikTok: https://www.tiktok.com/@shekhinah_token
